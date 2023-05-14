@@ -1,6 +1,4 @@
-# Final-Work
-
-Video Link: [https://ual.cloud.panopto.eu/Panopto/Pages/Viewer.aspx?id=10f059b1-3f53-4a7c-88f7-afcf01287795](https://ual.cloud.panopto.eu/Panopto/Pages/Viewer.aspx?id=10f059b1-3f53-4a7c-88f7-afcf01287795)
+# Interactive Lotus
 
 YouTube video: https://youtu.be/Q56-JVZj9Tw
 
